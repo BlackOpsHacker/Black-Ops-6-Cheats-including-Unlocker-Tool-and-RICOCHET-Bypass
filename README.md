@@ -1,7 +1,7 @@
 # Black-Ops-6-Cheats-including-Unlocker-Tool-and-RICOCHET-Bypass
 Free to use new hack for Black Ops 6
 
-Gameplay: https://youtu.be/qjLWNXCyxD8
+Gameplay video: https://youtu.be/qjLWNXCyxD8
 
 [![1105-ezgif com-optimize](https://github.com/user-attachments/assets/a97935ce-be70-4936-aeff-4bba24755477)](https://s11.gifyu.com/images/SyN1s.md.gif)
 
